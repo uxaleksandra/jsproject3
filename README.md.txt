@@ -1,0 +1,1 @@
+8.4 Zadanie: Pole trójk¹ta
